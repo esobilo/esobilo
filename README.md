@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @esobilo
-- 🌱 I’m currently learning ... Cybersecurity
+- 🌱 I’m currently learning ... Cybersecurity | Telecommunication
 - 💞️ I’m looking for a job in any field of Information Technology
 - 📫 How to reach me .... thru email esobilo@gmail.com
